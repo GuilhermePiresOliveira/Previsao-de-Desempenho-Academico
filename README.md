@@ -1,3 +1,7 @@
+![image](https://github.com/user-attachments/assets/a992b362-e79d-4a0c-8858-53acee3f711d)
+
+
+
 ## *Previsão de Desempenho Acadêmico*
 
 
